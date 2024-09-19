@@ -16,5 +16,5 @@
 16. ЗАДАНИЕ  ![image](https://github.com/user-attachments/assets/3ba6bba1-b217-46cc-8692-f042ee8473a0)
 17. ЗАДАНИЕ  ![image](https://github.com/user-attachments/assets/6b5ac47f-f612-4c23-9c44-57f7840ab7bd)
 18. ЗАДАНИЕ  ![image](https://github.com/user-attachments/assets/7f6b8eeb-9e3f-44d2-ad7e-5d28076aa938)
-1.9 ЗАДАНИЕ  ![image](https://github.com/user-attachments/assets/8fa98626-68a3-4843-9280-763d68b910e6)
+19. ЗАДАНИЕ  ![image](https://github.com/user-attachments/assets/8fa98626-68a3-4843-9280-763d68b910e6)
 # DARTPAD777
